@@ -3,7 +3,7 @@
 
 **Once opon a time, I worked as a journalist. Then I decided to be a teacher, to then find out that I couldn't anymore runaway.**
 
-Check my <b><a href="urlhttps://www.linkedin.com/in/marcos-felipemonteiro-/">LinkedIn</a></b> for more on my professional <i>odyssey</i>
+Check my <b><a href="https://www.linkedin.com/in/marcos-felipemonteiro-/">LinkedIn</a></b> for more on my professional <i>odyssey</i>
 
 
 🖥 Currently at <b><a href="https://company.onefootball.com/">OneFootball</a></b>, working with live streaming/OTT management;
